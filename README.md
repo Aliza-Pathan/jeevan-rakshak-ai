@@ -1,3 +1,5 @@
+https://jeevanrakshakai-youraipoweredemrgencylifeline.lovable.app
+
 # Jeevan Rakshak AI
 
 Jeevan Rakshak AI is a smart first-aid assistant for emergency situations.
